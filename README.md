@@ -1,1 +1,2 @@
-you can see this site on this link - https://chiragbhayana.github.io/Tin-Dog/
+you can visit the site on this link - https://chiragbhayana.github.io/Tin-Dog/
+
